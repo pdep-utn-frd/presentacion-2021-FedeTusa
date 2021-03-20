@@ -3,7 +3,8 @@
 - Número de legajo: 11439
 ## Cosas sobre mí
 - Tengo 19 años
-- Me gustan los gatos (tengo dos)
+- Me gustan los gatos (tengo dos,Roqui y Felipa)
+![WhatsApp Image 2021-03-20 at 15 04 02](https://user-images.githubusercontent.com/80929186/111881174-1f64e780-898e-11eb-9366-d381855bc4c5.jpeg)
 - Soy fanático de la NBA
 - mi comida favorita es la milanesa a la napolitana con papas fritas
 ## Hobbies
