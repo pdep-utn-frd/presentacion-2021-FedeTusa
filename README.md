@@ -10,5 +10,5 @@
 ## Hobbies
 - Mirar series y peliculas en Netflix
 - Mirar partidos de la NBA
-- Jugar a la play
+- Jugar a la play (GTA 5 o NBA2k)
 - Correr
