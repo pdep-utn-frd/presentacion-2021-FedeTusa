@@ -8,7 +8,7 @@
 - Soy fanático de la NBA
 - mi comida favorita es la milanesa a la napolitana con papas fritas
 ## Hobbies
-- Mirar series y peliculas en Netflix
+- Mirar series (top 3:Sorjonen, la valla y el desorden que dejas) y peliculas en Netflix
 - Mirar partidos de la NBA
 - Jugar a la play (GTA 5 o NBA2k)
 - Correr
